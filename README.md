@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am Joshua Munidi <br>I am currently a computer science student at Maseno University<br>
+I am Joshua Mwendwa Muindi <br>Computer Science graduate<br>
 
 
 ## 🌐 Socials:
